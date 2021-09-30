@@ -10,5 +10,6 @@
 | *Languages I Know* | `Python`|  
 
 
-Contact Me : 
+Contact Me: 
  [Telegram](https://t.me/FarzinNotFound)
+ [Discord](https://discordapp.com/users/527812446262394880)
